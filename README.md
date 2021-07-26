@@ -1,1 +1,0 @@
-# GameStoreSimulation denemeeee
