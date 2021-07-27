@@ -1,1 +1,1 @@
-# GameStoreSimulation denemeeee
+# GameStoreSimulation denemeeee değiştii
